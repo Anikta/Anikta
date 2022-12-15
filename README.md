@@ -1,3 +1,3 @@
-Yo, I'm Anikta. I develop roblox games and the occasional random Unity game
+Yo, I'm Anikta. I du dumb stuff with text editors sometimes
 
-Socials: Discord - Anikta#3782 | Steam - Anikta | Twitch - Anikta05 |
+Socials: Discord - Anikta#3782 | Steam - Anikta 
